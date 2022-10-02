@@ -9,4 +9,3 @@ Both unripe and ripe mangoes taste amazing! For ripe mangoes, you can blend thei
 It doesn't look as good as my mother's, but here's a picture of goi xoai. ![image](https://user-images.githubusercontent.com/114511266/193100501-2f3d6605-44c8-46ed-a21c-d26388a05590.png)
 ## Benefits of Mangoes
 Mangoes are a good source of magnesium, fiber, and potassium, especially if you're one of those people who don't really like bananas like me, but still want to get those same vitamins and minerals. Mangoes are also low in calorie and helps boosts your immune system. A personal benefit I love about mangoes is that mangoes are a healthy, refreshing option to fulfill your sweet tooth cravings. 
-Here are some mini mangoes I got a while ago! Tiny, cute, AND delicious!
