@@ -1,6 +1,6 @@
 # What I Love About Mangoes
-Hi! This is a website dedicated to mangoes because I love them very much and they are the best fruit!
-Before you continue reading, release your inner child with this cool [video](https://youtu.be/TluYloE1EMc) of a mango rhyme that is pretty cool. :) 
+Hi! This is a website dedicated to mangoes because I love them very much and they are the best fruit in my opinion!
+Before you continue reading, check out this cool [video]([https://youtu.be/TluYloE1EMc](https://youtu.be/GPQ1wt-PusY)) of how to cut a mango, just in case you need it. :) 
 ## Where are Mangoes from?
 Mangoes are grown and imported from many countries. 75% of mango exports are from Asia, and India is actually the largest mango producer in the whole world! I love mangoes because you can find them almost anywhere and are very accessible. 
 I mean, look at this beauty! ![Image](https://upload.wikimedia.org/wikipedia/commons/f/fb/Carabao_mangoes_%28Philippines%29.jpg)
