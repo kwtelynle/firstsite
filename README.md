@@ -23,4 +23,4 @@ Personally, my favorite is the Honey mango. It never fails in the sweetness fact
 You can honestly buy mangoes at almost any grocery store, but my family usually gets our mangoes at H Mart. 
 ![image](https://img.rawpixel.com/s3fs-private/rawpixel_images/website_content/pdwatercolorfruitbatch1-326-gloy_1.jpg?w=800&dpr=1&fit=default&crop=default&q=65&vib=3&con=3&usm=15&bg=F4F4F3&ixlib=js-2.2.1&s=7651d098383b92c0a1ee13fd672e85ca)
 
-If you are craving mangoes after reading this, then my work here is done. :) 
+I hope this made you appreciate mangoes a tiny bit mroe. If you are craving mangoes after reading this, then I'm proud to say that my work here is done. :) 
